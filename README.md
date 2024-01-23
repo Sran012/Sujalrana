@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sran012
+- 👋 Hi, I’m SUJAL RANA
 - 👀 repo
 - 🌱 open source
 - 📫 reach me here ...
